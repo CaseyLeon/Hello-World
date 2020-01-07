@@ -3,4 +3,4 @@
 Hello Humans!
 
 
-Space Sushi isas the best!
+Space Sushi is the best!
